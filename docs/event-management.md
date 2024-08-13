@@ -1,5 +1,5 @@
 ﻿
-# Event Management
+# [Event Management](https://www.bics.ie/)
 
 Society events should be in keeping with the objectives of the society. These events are key for creating atmosphere on campus, raising money and publishing your society. Successful events are characterised by good planning, sound financial management and effective publicity. Plan as far in advance as you possibly can. One week before the event is never good.  Here is a guide to planning and running events.
 

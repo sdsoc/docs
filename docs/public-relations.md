@@ -1,5 +1,5 @@
 ﻿
-# Public Relations
+# [Public Relations](https://www.bics.ie/)
 
 The role of Public Relations Officer (PRO) is to handle the promotion of the society and communicate on its behalf. They are involved in:
 

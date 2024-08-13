@@ -1,5 +1,5 @@
 ﻿
-# [The Role of Chairperson]](https://www.bics.ie/)
+# [The Role of Chairperson](https://www.bics.ie/)
 
 The chairperson must take the lead in the organisation and management of the society. The success of a meeting will often depend on the chair's abilities. Sometimes discussion can be lively, even heated, and other times discussion can be so tightly controlled that few people get a chance to participate. It is the chairperson's job to make sure everyone can take part, to make clear decisions and to finish the business. Here is a guide to successful chairing.
 
